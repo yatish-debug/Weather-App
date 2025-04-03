@@ -59,6 +59,6 @@ Note :- For Best Experience See This Website on 400*860
 `
 ## Contact
 For any inquiries, reach out at [yhbharmbe26@gmail.com].<br>
-GitHub: [@kaushalsahu07](https://github.com/yatish-debug).<br>
-Instagram: [@cd.kaushal](https://www.instagram.com/yatish_bharambe_26?igsh=cm03bHVsaW5qcXNi).<br>
+GitHub: [@yatish-debug](https://github.com/yatish-debug).<br>
+Instagram: [@yatish_bharambe_26](https://www.instagram.com/yatish_bharambe_26?igsh=cm03bHVsaW5qcXNi).<br>
 
